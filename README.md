@@ -16,3 +16,7 @@ Votre mission si vous l'accepter :
 > May the force be with you
 
 PS : google est votre ami.
+
+Je suis le meilleur apprenti de parceque je me donne à 1000 pour cent tous les jours .cette formation et trop cool car je la trouve super-complète on apprend vite grâce à la méthode Rodolphe.Jattend de cette formation quelle maide à être un bon d'un bon Dev.
+
+Christian 
